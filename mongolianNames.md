@@ -17,7 +17,7 @@ Chilagun (rock)
 Chulgetei
 Alchigh
 Sukhebaatar
-Yargai
+Yargai - Elder leader of the Wustrolari
 Bogarji
 Tebengri
 Kiratai
@@ -28,7 +28,7 @@ Agsaldai
 Argasar
 Teguder Ahmad
 Cagan Ebugen
-Sartak
+Sartak - Emperor od Doseovia
 Jirghogadai
 Bukha
 Arik
@@ -38,7 +38,7 @@ Eljigidei
 Aruci
 Shikigur
 Inancha Bilge
-Narin
+Narin - Second in command of the Doseovian Army
 
 ## Female
 Ogul Gaimysh
