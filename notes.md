@@ -2,9 +2,9 @@ Mellen, a kirin, was born in a small farming village. She was born with a horn a
 
 Captured and made an offering to the eldest son of the emperor.
 
-Shubat Khan (eldest) is gay and leaves Mellen to his younger brothers who make a bet with one another (Koumiss Khan and Gin Khan) to win her over.
+Shubat (eldest) is gay and leaves Mellen to his younger brothers who make a bet with one another (Koumiss and Gin) to win her over.
 
-Second eldest sister (Shimni Khan)
+Second eldest sister (Shimni)
 
 Mellen raised by her own older sister Oaet (taught her to fight)
 
