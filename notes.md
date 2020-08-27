@@ -6,7 +6,7 @@ Shubat Khan (eldest) is gay and leaves Mellen to his younger brothers who make a
 
 Second eldest sister (Shimni Khan)
 
-Mellen raised by her own older sister Oaet
+Mellen raised by her own older sister Oaet (taught her to fight)
 
 Wetlands?
 
@@ -19,3 +19,13 @@ Shamanism
 Mellen dressed modestly at first and removes layers as she gets further on
 
 Sea voyage? Mellen from over sea?
+
+Gin calls Mellen "pet"
+
+Wants to escape and remove horn
+
+Trick by saying interest is fencing
+
+Black rapier
+
+Mellen renamed "Midori"
