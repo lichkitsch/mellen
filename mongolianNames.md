@@ -1,4 +1,5 @@
 ## Male Names
+Jochi
 Husun
 Bilge (learned/wise)
 Bataar
