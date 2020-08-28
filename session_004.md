@@ -16,8 +16,14 @@ Mellen dreams of a tadpole swimming alone in a vast pond. She watches it grow in
 
 After the dream, Mellen is woken by some sounds from the other side of the door.
 
-- Bet is made between the children of Sartak
-- Pesmosia gives Mellen a warning and info about the royals
-- Mellen meets Aruska, a sheep servant working specifically for Shimni
-- Mellen learns of the Wustrolari surviving the attack, Yargai lives
+Shubat tells Shimni, Koumiss, and Gin that he's content as leader of the Doseovian Army and that one of them can have Mellen as their bride. She must accept one of them, Shubat doesn't give another choice.
+
+Koumiss and Shimni both decide to take the direct approach and flirt heavy-handedly with Mellen while Gin tries to win her over with a classic: dinner and dancing.
+
+- Bet is made between the children of kkjjuuyygttSartak
+- Pesmosia gives Mellen tra warning and info about the royals
+
+- Mellen learns of the Wustrolari surviving the attack
+ 
+ 
  
