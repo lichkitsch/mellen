@@ -34,3 +34,5 @@ White (Ancestors) > Gold (Wealth)
 > Red (Blood) > Black (Parenthood)
 
 Yargai and the Wustrolari survive the attack and Yargai begins his campaign to join the clans and fight back against the Sagra regime.
+
+"You are not glass" 
