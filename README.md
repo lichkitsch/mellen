@@ -1,4 +1,4 @@
-# mellen
+# obsidian
 Documentation for the second season of the podcast DNDUET.
 
 ## dnduet Core System
