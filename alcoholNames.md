@@ -1,217 +1,58 @@
-Acapulco Cocktail
-Adios Motherfucker (variation of Long Island Iced Tea)
 Adonis
-Agent Orange
-Aguaymanto Sour
-Alabama Slammer
 Alexander
-Amaretto Sour
-Amber Moon
-Americano
-Ancient Mariner
-Angel Face
-Aperol Spritz
-Aperol Sunrise (variation of Tequila Sunrise)
-Apple-Kneel
-Appletini or Apple Martini
-Agua de Sevilla
-Agua de Valencia
-Agua loca
-Arizona Biltmore (variation of Tequila Sunrise)
-Astronaut Sunrise (variation of Tequila Sunrise)
-Astro pop
-Aviation
-B-52 (and related B-50 series cocktails)
-B & B (Duo and Trio Cocktails)
-Baby Guinness
-Baby Stout
+Sour
+Mariner
+Angel
+Fresca
+Guinness
+Stout
 Bacardi
-Backdraft (also a Pepperdraft variation)
-Batida (traditionally made with cachaça)
-Bay Breeze
-Bee's Knees
-BelliniIBA
-Between the Sheets
-Bijou
-Black and Tan
-Black Nail
-Black Russian
-Black Velvet
+Bellini
 Blackthorn
-Bloody Aztec (Duo and Trio Cocktails)
-Bloody Margaret
-Bloody Maria
-Bloody Mary
-Blow my Skull Off
-BLT cocktail
-Blue Blazer
-Blue Hawaii
-Blue Lagoon
-Blueberry Tea
-Bobby Burns
-Boilermaker
-Boomerang (cocktail)
-Boulevardier
-Bourbon Lancer
+Lagoon
+Berry
+Bourbon
+Lancer
 Bramble
-Brandy Alexander
-Brandy Sour/Brandy Daisy
-Brandy Manhattan
-Brandy Sour (Cyprus)
+Cyprus
 Brass Monkey
-Brave Bull
-Breakfast martini
 Bronx
 Brooklyn
-Brunch Money
-Brut Cocktail
-Buck's Fizz
-Bull Shot
-Bumbo (also called a Bombo or Bumboo)
-Bushwacker
-Buttery Nipple
-Caesar
-Caipirinha
-Caipivodka or Caipiroska
-Caju Amigo
-Cape Cod
-Caribe Sour
-Caribou Lou
-Carrot Cake
-Casino
-Cement mixer
-Champagne Cocktail
+Fizz
+Cipa
+Caju
+Kaseem
+Champagne
 Chi-Chi
-Chicago Cocktail
-Chimayó Cocktail
-Chocolate martini
-Churchill
-Cloister
-Clover Club Cocktail
-Cobra's Fang
-Cojito
-Colombia
-Colorado Bulldog
-Common Market
-Cooperstown Cocktail
-Corpse Reviver #2
-Cosmopolitan
+Fang
 Cremat
-Cuba Libre
-Cuban Sunset
-Curacao Punch
+Rum
 Daiquiri
-Damn the Weather
-Dark 'N' Stormy
-Death in the Afternoon
 Derby
-Diki-Diki
-Doctor Cocktail
-Dressed Michelada
-Duck Fart
-El Duelo (brand name cocktail - Tequila Herradura)
-El Presidente
-Enamorada Sunrise (variation of Tequila Sunrise)
 Farnell
-Fish House Punch
-Fizzy apple cocktail
-Flaming Dr Pepper
-Flaming Sambuca
-Flaming Volcano
-Flirtini
-Florida Sunrise (variation of Tequila Sunrise)
-Fluffy Critter
-Four Score
-French 75
-French Connection
-French Connection
-Fresh Cucumber Punch
-Fuzzy Navel
+Sambuca
+Sangria
+Fluffy
+Critter
 Gibson
 Gimlet
-Gin and tonic
-Gin buck (a Buck variant)
-Gin Fizz
-Gin pahit
-Gin sour
-Ginza Mary
-Glowtini
-Godfather
-Godmother
-Golden Doublet
-Golden Dream
-Grasshopper
-Grateful Dead (variation of Long Island Iced Tea)
-Green Vesper
+Glotini
+Grateful
+Vesper
 Greyhound
 Grog
-Gunfire
-Hangman's Blood
-Hanky-Panky
-Harlem Mugger
-Harrogate Nights
-Harvey Wallbanger
-Herbsaint
-Hennchata
-Herbsaint Frappé
-Hi-fi
-Horse's Neck
-Horsefeather
-Hot buttered rum
 Hugo
-Hurricane
-In Noble Fashion
-Incredible Hulk
-Irish Car Bomb
-Irish coffee
-Island Spice
-Jack and Coke
-Jack Rose
-Jägerbomb
-Jagertee
-Japanese Slipper
-Jazmin Sour
-John Collins
-Juan Collins
-Jungle Bird
-Jungle Juice
-Kalimotxo or Calimocho or Rioja Libre
-Kamikaze
-Karsk
-Kensington Court Special
-Kir
-Kir Royal
-Kremlin Colonel
-La Ciudad (brand name cocktail - Tequila Herradura)
-La Fortuna (brand name cocktail - Tequila Herradura)
-The Last Punch
-Leche Dulce - Baileys + DiSelrono
-Leite de Onça
+Jack
+Rose
 Lemon Drop
-Lime Rickey
-Link Up
-Long Beach Iced Tea (variation of Long Island Iced Tea)
-Long Island Iced Tea
-Lorraine    
-Lynchburg Lemonade
-Macuá
-Mai-Tai
-Malecon
-Mango Sour
-Manhattan
+Ricki
+Link
 Margarita
 Martini
-Matador
-Mauresque
-Mexica
-Mexican martini
-Mexican Mocha
-Michelada
-Mickey Slim
-Midori Sour
-MimosaIBA
-Mint Julep
-Missouri Mule
+Midori
+Mimosa
+Mint & Julep
+
 Mojito
 Mojito Blanco
 Monkey Gland

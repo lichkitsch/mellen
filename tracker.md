@@ -9,13 +9,13 @@
 | Amaretto alerted Croba to the kirin situation |
 | Yargai spreading news of kirin to other lands to gain allies against Doseovia |
 | Koumiss escaped to the badlands, knows about Mellen, gaining allies as well |
-| Lovoveil Council sent Taliesin and Curoçao to find a kirin in Nofuin Forest |
-| Pes and Shimni are staying with Olga while Shimni recovers from her burns |
+| Lovoveil Council sent Taliesin and Curoçao to find a kirin in Nofuin |
+| Pes and Shimni are staying with Olga |
 | Someone attempted to poison the king |
 | Mellen's dad is out there somewhere blabbing about her to anyone who'll listen |
 
 ## Pregnancy
-Mellen is 1 week pregnant. No signs of it yet, but Oaet had a prophetic dream.
+Mellen is 10 days pregnant. No signs of it yet, but Oaet had a prophetic dream.
 
 ## Pantheon
 
@@ -31,6 +31,6 @@ Mellen is 1 week pregnant. No signs of it yet, but Oaet had a prophetic dream.
 | Sabiha | fox | 🚺 | love/marriage |
 | Doruk | horse | 🚹 | fatherhood |
 | Yosma | bear | 🚺 | motherhood |
-| ? | otter | 🚹 | the ocean |
+| Levent | otter | 🚹 | the ocean |
 | Basak | lizard | 🚺 | wind/sand/gold |
-| ? | hedgehog | 🚹 | hearth/home |
+| Hasan | hedgehog | 🚹 | hearth/home |
