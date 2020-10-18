@@ -28,7 +28,7 @@ Mellen is 10 days pregnant. No signs of it yet, but Oaet had a prophetic dream.
 | Irfan | shrew | 🚺 | health/medicine |
 | Volkan | tiger | 🚹 | fire/sunlight |
 | Asena | wolf | 🚺 | ice/moonlight |
-| Sabiha | fox | 🚺 | love/marriage |
+| Sabina | fox | 🚺 | love/marriage |
 | Doruk | horse | 🚹 | fatherhood |
 | Yosma | bear | 🚺 | motherhood |
 | Levent | otter | 🚹 | the ocean |
